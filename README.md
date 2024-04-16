@@ -1,0 +1,1 @@
+# Python_developer_summer-2024_Trial_exam_Tinkoff
